@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: huangzhenjie.bj@outllok.com
 - 😄 Pronouns: 知識就是力量
 - ⚡ Fun fact: 前門的一碗板面居然需要25元
-# 🥁
+# 🚩🌏
