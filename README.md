@@ -5,11 +5,11 @@
 
 Here are some ideas to get you started:
 <!--🔭 I’m currently working on ...-->
-- 🌱 I’m currently learning 《人体解剖学与组织胚胎学》
+- 🌱 I’m currently learning 《110》
 <!--👯 I’m looking to collaborate on -->
 <!-- 🤔 I’m looking for help with --> 
 - 💬 Ask me about coding,coding
-- 📫 How to reach me: huangzhenjie.bj@outllok.com
+- 📫 How to reach me: huangzhenjie@hzj.ac.cn
 - 😄 Pronouns: 知識就是力量
-- ⚡ Fun fact: 前門的一碗板面居然需要25元
+- ⚡ Fun fact: 一刀999级
 # 🚩🌏
